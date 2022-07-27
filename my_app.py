@@ -1,2 +1,3 @@
 # напиши здесь код основного приложения и первого экрана
-ht5yhb5h
+etfgvouhe
+rbtvrstgvoub4]\htv
